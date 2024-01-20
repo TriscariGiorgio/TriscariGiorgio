@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @TriscariGiorgio
+- 👀 I’m interested in sports, travelling and sometimes coding
+- 🌱 I’m currently learning python libraries and database sql
+- 📫 My main accounts are Insta:@trisgio96 , LinkedIn:@Triscari Giorgio and Github:@TriscariGiorgio
+- ⚡ Fun fact: I love to do every kind of sport with the right company
